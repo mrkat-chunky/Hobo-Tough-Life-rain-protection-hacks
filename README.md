@@ -1,0 +1,1 @@
+# Hobo-Tough-Life-rain-protection-hacks
